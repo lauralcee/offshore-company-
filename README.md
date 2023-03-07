@@ -1,1 +1,2 @@
-# offshore-company-
+# Offshore Company
+The Cook Islands is most recognized for their asset protection Trust which stands to be the strongest offshore structures in the world due to their corporate laws that make breaking into the structure incredibly difficult. Oftentimes, the best places for your [offshore company formation services](https://www.broadgate.global/) formation are not the cheapest countries to start a business in. A foreign corporation is generally subject to US tax only on its US source income and only if it is “engaged in a trade or business in the US.” However, a foreign corporation is also subject to US tax on its foreign source income if the foreign corporation is (i) engaged in a trade or business in the US. 
